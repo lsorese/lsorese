@@ -4,11 +4,11 @@
 
 ## Music:
 
-[Logan Sorese](https://logansorese.bandcamp.com/)
+[Logan Sorese](https://logansorese.bandcamp.com/) on Bandcamp
 
-[Logan Sorese on Apple Music](https://music.apple.com/us/artist/logan-sorese/1518928225)
+[Logan Sorese](https://music.apple.com/us/artist/logan-sorese/1518928225) on Apple Music
 
-[Logan Sorese](https://open.spotify.com/artist/0IcAkBK1nmWtMjAlwtp8bv)
+[Logan Sorese](https://open.spotify.com/artist/0IcAkBK1nmWtMjAlwtp8bv) on Spotify
 
 ---
 
