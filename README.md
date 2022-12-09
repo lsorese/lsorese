@@ -1,6 +1,6 @@
 # Who?
 
-**Logan Sorese** is a musician, programmer, and `unimaginable horror` living in [Bon Air, Virginia](https://en.wikipedia.org/wiki/Bon_Air,_Virginia). 
+**Logan Sorese** is a musician, developer, and `unimaginable horror` living in [Bon Air, Virginia](https://en.wikipedia.org/wiki/Bon_Air,_Virginia). 
 
 ## Music:
 
