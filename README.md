@@ -16,7 +16,7 @@
 
 [tomorrow agency](https://tomorrowagency.com)
 
-## Letters, Short Stories, and Reviews:
+## Tarot Readings, Letters, Short Stories, and Reviews:
 
 Go to [loganfromtheinter.net](https://loganfromtheinter.net)
 
