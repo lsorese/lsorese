@@ -12,9 +12,11 @@
 
 ---
 
-## Technology:
+## The Internet:
 
 [tomorrow agency](https://tomorrowagency.com)
+[sorese.com](https://sorese.com)
+
 
 ## Tarot Readings, Letters, Short Stories, and Reviews:
 
