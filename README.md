@@ -2,6 +2,11 @@
 
 **Logan Sorese** is a musician, developer, and `unimaginable horror` living in [Bon Air, Virginia](https://en.wikipedia.org/wiki/Bon_Air,_Virginia). 
 
+
+## Reviews, Letters, Short Stories, and Tarot:
+
+Go to [loganfromtheinter.net](https://loganfromtheinter.net)
+
 ## Music:
 
 [Logan Sorese](https://logansorese.bandcamp.com/) on Bandcamp
@@ -16,11 +21,6 @@
 
 [tomorrow agency](https://tomorrowagency.com)<br />
 [sorese.com](https://sorese.com)
-
-
-## Tarot Readings, Letters, Short Stories, and Reviews:
-
-Go to [loganfromtheinter.net](https://loganfromtheinter.net)
 
 ---
 
