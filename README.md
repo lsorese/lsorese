@@ -19,11 +19,11 @@ Go to [loganfromtheinter.net](https://loganfromtheinter.net)
 
 ## The Internet:
 
-[tomorrow agency](https://tomorrowagency.com)<br />
+[Domaine](https://meetdomaine.com)<br />
 [sorese.com](https://sorese.com)
 
 ---
 
 ## Contact:
 
-[Here](mailto:logan@sorese.com) and [There](https://Instagram.com/loganfromtheinternet)
+[Here](mailto:logan@sorese.com) and [There](https://instagram.com/loganfromtheinternet)
